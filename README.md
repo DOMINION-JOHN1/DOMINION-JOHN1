@@ -1,5 +1,5 @@
 # 💫 Hi I am Dominion John:
-I am an ML /AI Engineer<br><br>🌍  I'm based in Kogi, Nigeria<br>✉️  You can contact me at jdominion123@gmail.com<br>🚀  I'm currently working on machine learning and AI projects <br>⚡  I am a biophile. I a, very resilient.
+I am an ML /AI Engineer<br><br>🌍  I'm based in Nigeria<br>✉️  You can contact me at jdominion123@gmail.com<br>🚀  I'm currently working on machine learning and AI projects <br>⚡  I am a biophile. I am very resilient.
 
 
 ## 🌐 Socials:
